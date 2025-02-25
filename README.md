@@ -5,7 +5,7 @@ As a former graphic and media designer I have gained experience in the non-code 
 
 I bring creativity and great commitment to all my projects and also enjoy creating content such as photography / videography and illustrations.
 
-![chaos](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExdjJ1dXd2NWJ3ZGIzZHRkaW93ZWZvdXZyaTVyZHV1ODNyMDdidGV1ciZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/YaSHZOV9lldomYFO6B/giphy.gif))
+![chaos](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExdjJ1dXd2NWJ3ZGIzZHRkaW93ZWZvdXZyaTVyZHV1ODNyMDdidGV1ciZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/YaSHZOV9lldomYFO6B/giphy.gif)
 
 
 **Skills:**
