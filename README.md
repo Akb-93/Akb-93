@@ -7,11 +7,6 @@ I bring creativity and great commitment to all my projects and also enjoy creati
 
 ![chaos](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExdjJ1dXd2NWJ3ZGIzZHRkaW93ZWZvdXZyaTVyZHV1ODNyMDdidGV1ciZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/YaSHZOV9lldomYFO6B/giphy.gif)
 
-![PS](https://github.com/tandpfun/skill-icons/blob/main/icons/Photoshop.svg)
-
-![ID]()
-![HTML](https://github.com/tandpfun/skill-icons/blob/main/icons/HTML.svg)
-
 
 
 ### **Skills:**
